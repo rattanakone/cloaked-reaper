@@ -57,5 +57,3 @@ Viewless and soundless I fashion all being.
 -- *William Ernest Henley 1875*
 
    http://www.public-domain-poetry.com/william-ernest-henley/i-am-the-reaper-18324 
-   
-   ....
